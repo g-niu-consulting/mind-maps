@@ -1,4 +1,4 @@
-These mind-maps are an ongoing project of the visualization of legal frameworks of Canadian Immigration Law. They will be updated on this site on a montly basis.
+These mind-maps are an ongoing project of the visualization of legal frameworks of Canadian Immigration Law. They will be regularly updated on this site on the first day of each month.
 
 These mind-maps are created for educational purposes. They do NOT, and are NOT intended to, constitute legal advice.
 
