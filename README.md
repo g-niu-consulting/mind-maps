@@ -4,6 +4,6 @@ These mind-maps are created for educational purposes. They do NOT, and are NOT i
 
 These mind-maps are protected by Creative Commons License of CC BY-NC-ND, which enables reusers to copy and distribute these mind-maps in any medium or format in unadapted form ONLY, for noncommercial purposes ONLY, and ONLY so long as attribution is given to George Niu the creator.
 
-Send questions or feedback to george@gniu.ca, or simply message me if you know where to find me on social media.
+Send questions or feedback to info@gniu.ca, or simply message me if you know where to find me on social media.
 
-To keep this project going, consider paying what you can by e-transferring to gnudoyng@gmail.com. Thank you for your support.
+To keep this project going, consider paying what you can by e-transferring to info@gmail.com. Thank you for your support.
