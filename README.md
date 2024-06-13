@@ -6,4 +6,4 @@ These mind-maps are protected by Creative Commons License of CC BY-NC-ND, which 
 
 Send questions or feedback to info@gniu.ca, or simply message me if you know where to find me on social media.
 
-To keep this project going, consider paying what you can by e-transferring to info@gmail.com. Thank you for your support.
+To keep this project going, consider paying what you can by e-transferring to info@gniu.ca. Thank you for your support.
